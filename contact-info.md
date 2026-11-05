@@ -7,3 +7,6 @@ Hi! I'm a student in a Poland unversity, originated at Belarus.
 
 2. **Discord**: sttf
 > (I'm online in the evenings)
+
+## The best time for the interview?
+I would prefer the second week to have some time to prepare
